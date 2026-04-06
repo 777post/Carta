@@ -1,2 +1,0 @@
-# Carta
-Para santi
